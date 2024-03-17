@@ -1,3 +1,1 @@
-NAME: Adesokan Segun Yusuf
-ACCOUNTABILITY PARTNER
-GROUP NAME
+Name:Adesokan Segun Yusuf, accountability partner and group name
